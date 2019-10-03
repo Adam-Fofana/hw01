@@ -14,7 +14,7 @@ MA in International Relations from the University of Chicago (Expected June 2020
 4. Urbanism
 
 ## Personal Interests
-1. Running (*>800 meters*)
+1. Running (**>800 meters**)
 2. Comicbooks
 3. Marvel Movies
 4. Science Fiction
