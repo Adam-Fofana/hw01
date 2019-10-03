@@ -1,6 +1,6 @@
 # Adam Fofana
 
-![I visited Ireland in August. The cliffs of Moher are fun.](IMG_8556.JPG)
+![Alt text is fun](IMG_2520.JPG)
 
 
 
