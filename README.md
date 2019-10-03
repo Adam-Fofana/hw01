@@ -1,6 +1,6 @@
 # Adam Fofana
 
-![Alt text is fun](IMG_2520.JPG)
+![Alt text is fun](IMG_2520.jpg)
 
 
 
